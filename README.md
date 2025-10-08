@@ -48,8 +48,7 @@
 
 ---
 
-## 🌐 Let's Connect
-- 💼 [LinkedIn](#)  
+## 🌐 Let's Connect  
 - 📫 Reach me at: **kafilisetayesh@gmail.com**  
 
 ---
